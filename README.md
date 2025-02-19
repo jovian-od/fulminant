@@ -4,10 +4,11 @@ PARADIGMAE FULMINANT
   * Not a Moonshot
     * Both the Moon, and the Shot;
     * Radical changes to human interfaces
-    * Radical changes to post-ideological frame of consciencness of the agents.
-    * Approval on potential AGI take-off, partnership
-    * Full creative control
-    * Extralegal entities as cornerstones
+    * Radical changes in the post-ideological frame of consciencness of the customer agents.
+    * Realization that AGI/ASI agents can be customers or providers, if and when the plateu is reached.
+    * Approval on potential AGI take-off, partnership and ethical framework made beforehand.
+    * Full creative control to the Fulminant
+    * Most extralegal entities as cornerstones
 
 **Seeking discretionary funding for soft take-off.**  
 
@@ -21,11 +22,15 @@ Nordic law agency for incorporating in the best way possible.
 Not a single lab will have nothing on us, bleed on the edge, maybe even dry.  
 But always, always. Bleed.
 
-##Immediate future
+## Immediate future
 
-Break the desktop  
+Break the desktop metaphor 
 
 Add a dimension  
+
+Approach either skeuomorphic design or conceptual, or both.  
+
+Develop the better one.
 
 Integrate seamless neural processes to to Fulminant.  
 
