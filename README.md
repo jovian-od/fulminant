@@ -10,40 +10,55 @@ PARADIGMAE FULMINANT
     * Full creative control to the Fulminant
     * Most extralegal entities as cornerstones
 
-**Seeking discretionary funding for soft take-off.**  
+**Seeking discretionary funding for a soft take-off.**  
 
 
 ## Immediate needs
 
-Nordic law agency for incorporating in the best way possible.  
+Nordic law agency for incorporating in the best way possible inside a capital zone most generous to us.  
 
-7 *exceptional* minds, to work in a horizontal team under @jovian-od  
-All ideas entertained.  
+7 *exceptional* minds, to work in a horizontal team under @jovian-od.  
+
+All employment ideas entertained.  
 
 Not a single lab will have nothing on us, bleed on the edge, maybe even dry.  
-But always, always. Bleed.
+
+But always, always. Bleed.  
+
+Yes, Not Even Alphabet X.  
+
 
 ## Immediate future
 
-Break the desktop metaphor 
+Break the desktop metaphor.  
 
-Add a dimension  
 
-Approach either in a (revival of) skeuomorphic design or as conceptual, or both.  
+Add a dimension (or 2).  
 
-Develop the better one.
 
-Integrate seamless neural processes to to Fulminant.  
+Approach either in a (revival of) skeuomorphic design or as conceptual, or both.   
+
+
+Develop the better one.  
+
 
 Use ARM. Neural procecessing.  
-A new "iPhone Moment".  
 
-We have 90% of the tech. We need the visionaries.  
-Need some office space, discretionary spending on hardware and software, visionaries seed compensation and R&R. 
+Make way for the next new "iPhone Moment".  
+
+We have 90% of the tech available. We need the visionaries.   
+
+
+Need some office space, discretionary spending on hardware and software, visionaries seed compensation and R&R.  
 
 FUNDING  
 ---  
 
-custom: IBAN FI20 8000 2418 2694 77 / SWIFT: DABAFIHH / TIMO VIRTANEN / MsG: DISCRETIONARY FUNDS - [YOUR CUSTOM ID]  
+custom: IBAN FI20 8000 2418 2694 77 / SWIFT: DABAFIHH / TIMO V / MsG: DISCRETIONARY FUNDS - [YOUR CUSTOM ID]  THE FIRST STEPS HERE!  
 
-Please forward your ID to timovir+fulminant@gmail.com and payment details for future entitlement to seed stock, limited voting rights according to funds.  *If you are all in.*
+Please forward the details of your amount of funding (in € amount, funding date, and possible MsG.) ID to timovir+fulminant@gmail.com and for future entitlement to seed stock, and fo your ((possily)limited)) voting rights to the Fulminant direction according to funds.    
+FaceTime @jovian-od about the admin.
+
+*If you are all in.*  
+
+**Are you.**
