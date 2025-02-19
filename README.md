@@ -1,4 +1,4 @@
-##PARADIGMAE FULMINANT  
+PARADIGMAE FULMINANT  
 ---  
 
   * Not a Moonshot
