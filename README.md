@@ -12,7 +12,7 @@ PARADIGMAE FULMINANT
 **Seeking discretionary funding for soft take-off.**  
 
 
-##Immediate needs
+## Immediate needs
 
 Nordic law agency for incorporating in the best way possible.  
 
@@ -31,7 +31,7 @@ Integrate seamless neural processes to to Fulminant.
 
 We have 90% of the tech. We need the visionaries.  
 
-##FUNDING  
+FUNDING  
 ---  
 
 custom: IBAN FI20 8000 2418 26298 77 / SWIFT: DABAFIHH / TIMO VIRTANEN / DISCRETIONARY FUNDS - [YOUR CUSTOM ID]  
