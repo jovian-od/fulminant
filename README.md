@@ -1,19 +1,23 @@
-PARADIGMAE FULMINANT  
+PARADIGMAE FULMINANT Foundation
 ---  
 
-  * Not a Moonshot
-    * Both the Moon, and the Shot;
-    * Radical changes to human interfaces
-    * Radical changes in the post-ideological frame of consciencness of the customer agents.
+  * Not a Moonshot project
+    * We should rethink those as a conceptual space
+    * Radical changes to technology-human interfacing
+    * Natural Language agents
+    * Radical changes in the near-future post-ideological world - *must be prepared* 
     * Realization that AGI/ASI agents can be customers or providers, if and when the plateu is reached.
-    * Approval on potential AGI take-off, partnership and ethical framework made beforehand.
+    * Approval on potential AGI take-off, partnership and ethical framework made well beforehand.
     * Full creative control to the Fulminant
-    * Most extralegal entities as cornerstones
+    * Prefer mostly extralegal entities as cornerstones
+    * Inside and outside agent skepticism as the sounding domain for project(s)
+    * Strong insider security ethic
+  * A single, strong, and independent applied research Foundation.
 
 **Seeking discretionary funding for a soft take-off.**  
 
 
-## Immediate needs
+## Immediate needs before kick-off
 
 Nordic law agency for incorporating in the best way possible inside a capital zone most generous to us.  
 
@@ -56,7 +60,7 @@ FUNDING
 
 custom: IBAN FI20 8000 2418 2694 77 / SWIFT: DABAFIHH / TIMO V / MsG: DISCRETIONARY FUNDS - [YOUR CUSTOM ID]  THE FIRST STEPS HERE!  
 
-Please forward the details of your amount of funding (in € amount, funding date, and possible MsG.) ID to timovir+fulminant@gmail.com and for future entitlement to seed stock, and fo your ((possily)limited)) voting rights to the Fulminant direction according to funds.    
+Please forward the details of your amount of funding (in € amount, funding date, and possible MsG.) ID to timovir+fulminant@gmail.com and for future entitlement to seed stock, and for your ((possily)limited)) voting rights to the Fulminant Foundation direction according to seeded funds.    
 FaceTime @jovian-od about the admin.
 
 *If you are all in.*  
