@@ -21,7 +21,7 @@ PARADIGMAE FULMINANT Foundation
 
 Nordic law agency for incorporating in the best way possible inside a capital zone most generous to us.  
 
-7 *exceptional* minds, to work in a horizontal team under @jovian-od.  
+**7** *exceptional* minds, to work in a horizontal team under @jovian-od.  
 
 All employee ideas entertained against sounding domain.  
 
