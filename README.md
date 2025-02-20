@@ -23,45 +23,55 @@ Nordic law agency for incorporating in the best way possible inside a capital zo
 
 7 *exceptional* minds, to work in a horizontal team under @jovian-od.  
 
-All employment ideas entertained.  
+All employee ideas entertained against sounding domain.  
 
-Not a single lab will have nothing on us, bleed on the edge, maybe even dry.  
+Not a single lab should and will have nothing on us, bleed on the edge, maybe almost dry.  
+But always, always - Bleeding edge domain knowledge joined with lateral thinking.  
 
-But always, always. Bleed.  
-
-Yes, Not Even Alphabet X.  
+Beat the Alphabet X.  
+  
+Security aspect hard and unforgiving.
 
 
 ## Immediate future
 
 Break the desktop metaphor.  
 
+Add a dimensioninal UX and UI paradigm (or 2).  
 
-Add a dimension (or 2).  
+Approach the problem either in a (revival of) skeuomorphic design or as conceptual, or both. 
+Develop new iconoclastic language of interaction.
 
+Make 2 - Develop the better one.  
 
-Approach either in a (revival of) skeuomorphic design or as conceptual, or both.   
-
-
-Develop the better one.  
-
-
-Use ARM. Neural procecessing.  
+Boring tech base - just use ARM. Neural procecessing.  
 
 Make way for the next new "iPhone Moment".  
 
-We have 90% of the tech available. We need the visionaries.   
+We have 90% of the tech available.  
+We need the visionaries.   
+Seven visionary minds, under a highly horizontal Foundation director.
 
 
-Need some office space, discretionary spending on hardware and software, visionaries seed compensation and R&R.  
+**First Needs**:  
+
+Need of some physical space, secure and dimensional.  
+
+Discretionary funds for spending on essential hardware and software,  
+
+Visionaries, director need seed compensation, and R&R by case.  
 
 FUNDING  
 ---  
 
-custom: IBAN FI20 8000 2418 2694 77 / SWIFT: DABAFIHH / TIMO V / MsG: DISCRETIONARY FUNDS - [YOUR CUSTOM ID]  THE FIRST STEPS HERE!  
+VERY EARLY START:  
+
+    custom: IBAN FI20 8000 2418 2694 77 / SWIFT: DABAFIHH / TIMO V / MsG: DISCRETIONARY FUNDS - [YOUR CUSTOM ID]   
+    
 
 Please forward the details of your amount of funding (in € amount, funding date, and possible MsG.) ID to timovir+fulminant@gmail.com and for future entitlement to seed stock, and for your ((possily)limited)) voting rights to the Fulminant Foundation direction according to seeded funds.    
-FaceTime @jovian-od about the admin.
+
+FaceTime @jovian-od about the admin and applications for positions.
 
 *If you are all in.*  
 
