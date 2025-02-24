@@ -62,18 +62,19 @@ Boring talk is about tech details - just use ARM. Neural procecessing units.
 *Forecast and model the crucial immediate future security and financial threats.*  
 
 Make way for the next new "iPhone Moment".  
+Make way for the next new Dark Age - why did the first one happen?.  
+Plan and prototype.
 
-**We have 90% of the tech available.**  
-
+**We have 90% of the tech available today.**  
 
 **We need the visionaries.**   
-Seven visionary minds, under a highly horizontal Foundation director.
+Seven visionary minds, in a highly horizontal team, with a Foundation director.
 
 
 **First Needs**:  
 
-Discretionary funds for spending on essential hardware and software,  
-flights and funds for recruitment.
+Discretionary funds for spending on essential hardware and software, and  
+flights (if physical presence is needed) and funds for recruitment.
 
 Visionaries and director need seed compensation *ad hoc* until the foundation takes it shape.
 
@@ -82,24 +83,31 @@ FUNDING
    xxxxx€ for outlined soft take-off.  
 
 X% funding is done.  
+**Every patron will get access to the living standards, documents (like the full version of this one!), and live forecasting API.**
 
 Future needs as narrow as possible to secure a given goal.
 
 
 VERY EARLY START:  
 
-Send me a message, should you have my number and get full details.  Partials in this document.
-You can just message me and send funding. Contacts at the bottom, for early patronage.
+Send me a message, should you have my number and get full details.   
+Partials in this document, to check against.  
 
+*You can also email me and start patronage, and FaceTime access.*  
 
-    custom: IBAN FI20 8000 2418 **** 77 / SWIFT: DABAFIHH / T* V* / MsG: DISCRETIONARY FUNDS - [YOUR CUSTOM ID]   
-    
-Please forward the details of your amount of patronage (in € amount, funding date, and possible MsG.) ID to timovir+fulminant@gmail.com and for future entitlement to seed forecast and research access, and for your (logarihmically limited) voting rights to the Fulminant Foundation direction according to early patronage funds.    
+Contacts at the bottom, for early funders!  
 
-**Forecasts WILL follow artificial scarcity model.**
+Will not be available long once the program gets rolling.
 
+    SWIFT: IBAN FI20 8000 2418 **** 77 / SWIFT: DABAFIHH / T* V* / MSG: DISCRETIONARY FUNDS - [YOUR CUSTOM ID]   
 
-FaceTime @jovian-od about the admin and applications for positions, approach via gh, or get contact when asked by email.
+Instructions for those with details:  
+
+Please forward the details of your amount of patronage ID (in € amount, funding date, and possible MSG.) to timovir+fulminant[a]gmail.com for future entitlement to seed forecast and research access, and for your (logarihmically limited) voting rights to the Fulminant Foundation direction according to early patronage funds.    
+
+**Forecasts WILL follow artificial scarcity model in future.**
+
+FaceTime @jovian-od about the admin and applications for positions if you have the number, approach via gh, or get in contact by email timovir+foundation[a]gmail.com.
 
 *If you are all in.*  
 
