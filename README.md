@@ -2,14 +2,16 @@ PARADIGMAE FULMINANT Foundation
 ---  
 
   * Not a Moonshot project
-  * A Foundation as an NGO, providing forecast with exceptional methods for patrons.
-    * We should rethink that as a conceptual space
-    * Radical changes to technology-human interfacing first
+  * Applied Development and Forecasting of future with exceptional methods. 
+  * Implied trust to patrons.
+  * A Foundation as a NGO, providing forecasts and applied science and art for patrons *unlike nothing else*.
+    * We should rethink the NGO-model as a conceptual space
+    * Radical changes to technology-human interfacing first priorities
     * Natural Language agents
-    * Radical changes in the near-future post-ideological world - *must be prepared* 
-    * Realization that AGI/ASI agents can be customers or providers, if and when the plateu is reached.
+    * Radical changes will happen in the near-future post-ideological world - *must be prepared* 
+    * Realization that AGI/ASI agents can be customers or providers, if and when the current tech plateu is reached.
     * Approval on potential AGI take-off, partnership and ethical framework made well beforehand.
-    * Full creative control on the Fulminant
+    * Full creative control on the Fulminant on the Visionaries.
     * Prefer mostly extralegal entities as cornerstones of forecasts, challenge *de jure* assumptions,
     * Inside and outside agent skepticism as the sounding domain for project(s)
     * Strong insider security ethic
@@ -23,21 +25,25 @@ PARADIGMAE FULMINANT Foundation
 Nordic law agency for incorporating in the best way possible inside a capital zone most generous to us.  
 Finland or London.  
 
-Large space for applied research.
+**7** *exceptional* minds, to work in a horizontal team of 6 with one visionary as a rotating lead,   
+under @jovian-od, making total team of  **8**.  
 
-**7** *exceptional* minds, to work in a horizontal team under @jovian-od.  
+The visionaries should be *as different* from each other as possible, cross-scientific, complex, artistic, and pragmatic.  
+Follow *archetypes* with the team.
+
+Large and secure industrial space for applied research, after minimal version of the Foundation is running.  
 
 All employee ideas entertained against a healthily skeptical sounding domain.  
+Security aspect hard and unforgiving.
+
 
 Not a single another lab should and will have nothing on us, bleed on the edge, maybe almost dry.  
 But always, always - Bleeding edge domain knowledge joined with lateral thinking.  
 Forecast and develop.  
 
-**Intentional Opacity - 
-
 Beat the Alphabet X.  
-  
-Security aspect hard and unforgiving.
+
+**In public - Intentional opacity on forecasts, strong transparency on topics.** 
 
 
 ## Immediate future
@@ -73,8 +79,11 @@ Visionaries and director need seed compensation *ad hoc* until the foundation ta
 
 FUNDING  
 ---  
+   xxxxx€ for outlined soft take-off.  
 
-X% funding is done.
+X% funding is done.  
+
+Future needs as narrow as possible to secure a given goal.
 
 
 VERY EARLY START:  
@@ -94,4 +103,4 @@ FaceTime @jovian-od about the admin and applications for positions, approach via
 
 *If you are all in.*  
 
-**Are you.**
+**Are you.** 
